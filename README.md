@@ -1,4 +1,4 @@
-# NeoClip AI v3.0 - Zero-Cost to Cash-Flow Positive Video Generator
+# NeoClip AI v3.0 - Short Video Generator
 
 ## 🚀 Overview
 
